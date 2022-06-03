@@ -1,6 +1,4 @@
 
----
-
 * [220529-基督里的“民主”（视频）](https://www.asuswebstorage.com/navigate/a/#/s/2C8DF5F5CB914285ADE773E4617F7720Y)
 
 * [220522-活泼的盼望（视频）](https://www.asuswebstorage.com/navigate/a/#/s/202F780806784DD280B465196E287BB6Y)
