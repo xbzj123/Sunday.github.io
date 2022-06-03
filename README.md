@@ -1,3 +1,4 @@
+为达到观影效果，建议将网址复制到浏览器播放。
 
 * [220529-基督里的“民主”（视频）](https://www.asuswebstorage.com/navigate/a/#/s/2C8DF5F5CB914285ADE773E4617F7720Y)
 
