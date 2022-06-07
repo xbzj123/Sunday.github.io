@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [220605-从相信善良到从靠良善（视频）](https://www.asuswebstorage.com/navigate/a/#/s/A0DAE49FABB94B0E98A3EE22381DC195Y)
+
 * [220529-基督里的“民主”（视频）](https://www.asuswebstorage.com/navigate/a/#/s/2C8DF5F5CB914285ADE773E4617F7720Y)
 
 * [220522-活泼的盼望（视频）](https://www.asuswebstorage.com/navigate/a/#/s/202F780806784DD280B465196E287BB6Y)
