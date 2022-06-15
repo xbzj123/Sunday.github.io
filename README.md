@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [220612-律法如何彰显神的爱（视频）](https://www.asuswebstorage.com/navigate/a/#/s/5C07CE3CF3114B1C91E34CFD5D52EA76Y)
+
 * [220605-从相信善良到从靠良善（视频）](https://www.asuswebstorage.com/navigate/a/#/s/A0DAE49FABB94B0E98A3EE22381DC195Y)
 
 * [220529-基督里的“民主”（视频）](https://www.asuswebstorage.com/navigate/a/#/s/2C8DF5F5CB914285ADE773E4617F7720Y)
