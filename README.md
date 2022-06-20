@@ -1,6 +1,6 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
-* [220619-袁大同：父亲节谈“为父”的心（视频）](https://www.asuswebstorage.com/navigate/a/#/s/62E43DC943F94E02AA4BE0F030F3947AY)
+* [220619-父亲节谈“为父”的心（视频）](https://www.asuswebstorage.com/navigate/a/#/s/62E43DC943F94E02AA4BE0F030F3947AY)
 
 * [220612-律法如何彰显神的爱（视频）](https://www.asuswebstorage.com/navigate/a/#/s/5C07CE3CF3114B1C91E34CFD5D52EA76Y)
 
