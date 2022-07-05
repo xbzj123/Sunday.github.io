@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [220703-神是好的（视频）](https://www.asuswebstorage.com/navigate/a/#/s/F91F27B8EE5344BB8435DDE0BD7C5046Y)
+
 * [220626-不停止成长（视频）](https://www.asuswebstorage.com/navigate/a/#/s/AE8BD5F03FD440AC8C2E17DC0A540877Y)
 
 * [220619-父亲节谈“为父”的心（视频）](https://www.asuswebstorage.com/navigate/a/#/s/62E43DC943F94E02AA4BE0F030F3947AY)
