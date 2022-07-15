@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [220710-耶稣掌权与巴兰的教训（视频）](https://www.asuswebstorage.com/navigate/a/#/s/04F308E15C09492B9B01E8A3A59017A2Y)
+
 * [220703-神是好的（视频）](https://www.asuswebstorage.com/navigate/a/#/s/F91F27B8EE5344BB8435DDE0BD7C5046Y)
 
 * [220626-不停止成长（视频）](https://www.asuswebstorage.com/navigate/a/#/s/AE8BD5F03FD440AC8C2E17DC0A540877Y)
