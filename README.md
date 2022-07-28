@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [220724-我在这里请差遣我（视频）](https://www.asuswebstorage.com/navigate/a/#/s/D5EFD08FD53F4BAFB818EC74CC3A5406Y)
+
 * [220710-耶稣掌权与巴兰的教训（视频）](https://www.asuswebstorage.com/navigate/a/#/s/04F308E15C09492B9B01E8A3A59017A2Y)
 
 * [220703-神是好的（视频）](https://www.asuswebstorage.com/navigate/a/#/s/F91F27B8EE5344BB8435DDE0BD7C5046Y)
