@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [2200904-凡事盼望](https://www.asuswebstorage.com/navigate/a/#/s/1ACB9B9EFD7945C0B44FC5648DCA697AY)
+
 * [220828-恩恩爱爱过一生](https://www.asuswebstorage.com/navigate/a/#/s/FD04928C4E8F4C4FBA5C3FF3E1A0CA87Y)
 
 * [220821-雅歌第五章（一）](https://www.asuswebstorage.com/navigate/a/#/s/9EF8A0DC6A0F48FCAE74BA2397FCC15BY)
