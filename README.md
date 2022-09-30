@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
-* [220821-雅歌第五章（二）](https://www.asuswebstorage.com/navigate/a/#/s/498B1241D3F44621BC3F99DF2100DA98Y)
+* [220925-为主多得一灵魂](https://www.asuswebstorage.com/navigate/a/#/s/71C63C68D76A4289916B191605F79471Y)
+
+* [220918-雅歌第五章（二）](https://www.asuswebstorage.com/navigate/a/#/s/498B1241D3F44621BC3F99DF2100DA98Y)
 
 * [220911-委身与感恩的生命](https://www.asuswebstorage.com/navigate/a/#/s/D0B88E27290147A6BE2DFF467023DE57Y)
 
