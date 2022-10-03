@@ -1,6 +1,6 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
-* [221002-因信称义”与“因信称义教”](https://www.asuswebstorage.com/navigate/a/#/s/6A7C0DA5B94542C59CD490C7A3C06984Y)
+* [221002-“因信称义”与“因信称义教”](https://www.asuswebstorage.com/navigate/a/#/s/6A7C0DA5B94542C59CD490C7A3C06984Y)
 
 * [220925-为主多得一灵魂](https://www.asuswebstorage.com/navigate/a/#/s/71C63C68D76A4289916B191605F79471Y)
 
