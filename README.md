@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [221016-雅歌第六章](https://www.asuswebstorage.com/navigate/a/#/s/421BE9ACB415467384E4E6DABD3BF9CBY)
+
 * [221009-心意更新而改变](https://www.asuswebstorage.com/navigate/a/#/s/E4452E16466A4FBE825EA9EB3F99FF7CY)
 
 * [221002-“因信称义”与“因信称义教”](https://www.asuswebstorage.com/navigate/a/#/s/6A7C0DA5B94542C59CD490C7A3C06984Y)
