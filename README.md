@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [221030-你有固定的灵修生活吗？](https://www.asuswebstorage.com/navigate/a/#/s/E93AB5FB49814A54A9EFE777542246A5Y)
+
 * [221023-基督里的平等](https://www.asuswebstorage.com/navigate/a/#/s/56B12349722844A9932A7A0D9E58128CY)
 
 * [221016-雅歌第六章](https://www.asuswebstorage.com/navigate/a/#/s/421BE9ACB415467384E4E6DABD3BF9CBY)
