@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [221106-至高者在人的国中掌权](https://www.asuswebstorage.com/navigate/a/#/s/31B6E38AF77845E2BA23FE21B857A95AY)
+
 * [221030-你有固定的灵修生活吗？](https://www.asuswebstorage.com/navigate/a/#/s/E93AB5FB49814A54A9EFE777542246A5Y)
 
 * [221023-基督里的平等](https://www.asuswebstorage.com/navigate/a/#/s/56B12349722844A9932A7A0D9E58128CY)
