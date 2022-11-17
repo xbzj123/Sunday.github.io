@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [221113-依靠主忍耐到底的必然得救](https://www.asuswebstorage.com/navigate/a/#/s/4DFBF4D0CAF24AB0814296A62035B049Y)
+
 * [221106-至高者在人的国中掌权](https://www.asuswebstorage.com/navigate/a/#/s/31B6E38AF77845E2BA23FE21B857A95AY)
 
 * [221030-你有固定的灵修生活吗？](https://www.asuswebstorage.com/navigate/a/#/s/E93AB5FB49814A54A9EFE777542246A5Y)
