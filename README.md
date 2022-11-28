@@ -1,5 +1,9 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [221127-基督徒財務蒙福之道](https://www.asuswebstorage.com/navigate/a/#/s/D61BEAD075394D9EB5F980E10C6B3172Y)
+
+* [221120-雅歌第七章（一）](https://www.asuswebstorage.com/navigate/a/#/s/705A37B8C7544175BD0B167BD371D60CY)
+
 * [221113-依靠主忍耐到底的必然得救](https://www.asuswebstorage.com/navigate/a/#/s/4DFBF4D0CAF24AB0814296A62035B049Y)
 
 * [221106-至高者在人的国中掌权](https://www.asuswebstorage.com/navigate/a/#/s/31B6E38AF77845E2BA23FE21B857A95AY)
