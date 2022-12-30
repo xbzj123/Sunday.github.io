@@ -1,5 +1,11 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [221218-年底数算主恩典](https://www.asuswebstorage.com/navigate/a/#/s/8B5838DDA0B44B4F8182CBC8D0B2BAA9Y)
+
+* [221218-雅歌第七章（二）](https://www.asuswebstorage.com/navigate/a/#/s/39D5341CF1AE4B67BAC10E0383458A12Y)
+
+* [221204-长子的名分](https://www.asuswebstorage.com/navigate/a/#/s/DA15DD1D0F9E4C058F87214787440CA1Y)
+
 * [221127-基督徒財務蒙福之道](https://www.asuswebstorage.com/navigate/a/#/s/D61BEAD075394D9EB5F980E10C6B3172Y)
 
 * [221120-雅歌第七章（一）](https://www.asuswebstorage.com/navigate/a/#/s/705A37B8C7544175BD0B167BD371D60CY)
