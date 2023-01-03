@@ -6,6 +6,8 @@
 
 * [221218-雅歌第七章（二）](https://www.asuswebstorage.com/navigate/a/#/s/39D5341CF1AE4B67BAC10E0383458A12Y)
 
+* [221211-大使命与大转型](https://www.asuswebstorage.com/navigate/a/#/s/E2A3A4C3EB3B42B7A7DCDFBD4AFB96B7Y)
+
 * [221204-长子的名分](https://www.asuswebstorage.com/navigate/a/#/s/DA15DD1D0F9E4C058F87214787440CA1Y)
 
 * [221127-基督徒財務蒙福之道](https://www.asuswebstorage.com/navigate/a/#/s/D61BEAD075394D9EB5F980E10C6B3172Y)
