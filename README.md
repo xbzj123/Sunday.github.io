@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [230108-末世箴言：唯有忍耐到底的必然得救](https://www.asuswebstorage.com/navigate/a/#/s/78CAD21CDD3842319F4CC9F9876DA336Y)
+
 * [230101-兴起发光，神州归神](https://www.asuswebstorage.com/navigate/a/#/s/3920FB459EFC42A39F28323DD83ABF85Y)
 
 * [221225-年底数算主恩典](https://www.asuswebstorage.com/navigate/a/#/s/8B5838DDA0B44B4F8182CBC8D0B2BAA9Y)
