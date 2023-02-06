@@ -6,7 +6,7 @@
 
 * [230122-中国年：安息的恩福](https://www.asuswebstorage.com/navigate/a/#/s/12E5C45F2E2E4916B06EFCEBC58E9CADY)
 
-* [230115-雅歌第八章（一）]()
+* [230115-雅歌第八章（一）](https://www.asuswebstorage.com/navigate/a/#/s/683BC4E7269D49349FAFEA260CA2E40CY)
 
 * [230108-末世箴言：唯有忍耐到底的必然得救](https://www.asuswebstorage.com/navigate/a/#/s/78CAD21CDD3842319F4CC9F9876DA336Y)
 
