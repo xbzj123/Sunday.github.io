@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [230205-神的主权](https://www.asuswebstorage.com/navigate/a/#/s/CE1163CA0A5D4E249DE23F7FF5FA1DB8Y)
+
 * [230129-在以色列历史中掌权的神](https://www.asuswebstorage.com/navigate/a/#/s/8E52A0F988804FB187912D08BD21DD16Y)
 
 * [230122-中国年：安息的恩福](https://www.asuswebstorage.com/navigate/a/#/s/12E5C45F2E2E4916B06EFCEBC58E9CADY)
