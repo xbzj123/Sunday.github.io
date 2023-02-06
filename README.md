@@ -1,5 +1,11 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [230129-在以色列历史中掌权的神]()
+
+* [230122-中国年：安息的恩福]()
+
+* [230115-雅歌第八章（一）]()
+
 * [230108-末世箴言：唯有忍耐到底的必然得救](https://www.asuswebstorage.com/navigate/a/#/s/78CAD21CDD3842319F4CC9F9876DA336Y)
 
 * [230101-兴起发光，神州归神](https://www.asuswebstorage.com/navigate/a/#/s/3920FB459EFC42A39F28323DD83ABF85Y)
