@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [230219-雅歌第八章（二）](https://www.asuswebstorage.com/navigate/a/#/s/49C93F3E8DB6444BBC72DA1E043D626BY)
+
 * [230212-常回家看看与属灵的争战](https://www.asuswebstorage.com/navigate/a/#/s/E1F68C4164B34900984782F7CD9D26FFY)
 
 * [230205-神的主权](https://www.asuswebstorage.com/navigate/a/#/s/CE1163CA0A5D4E249DE23F7FF5FA1DB8Y)
