@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [230305-神的荣耀](https://www.asuswebstorage.com/navigate/a/#/s/A069BCDEE1CE4A708BDA8DFEFF234531Y)
+
 * [230226-不一样的眼光](https://www.asuswebstorage.com/navigate/a/#/s/C3648C158AEE425A8F9150B508542C9AY)
 
 * [230219-雅歌第八章（二）](https://www.asuswebstorage.com/navigate/a/#/s/49C93F3E8DB6444BBC72DA1E043D626BY)
