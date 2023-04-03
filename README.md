@@ -1,4 +1,6 @@
 为达到观影效果，建议将网址复制到浏览器播放。
+* [230402-赵晓：神就是爱但爱不是神](https://www.asuswebstorage.com/navigate/a/#/s/FD56334EFF394C30BAF68833991F35B4Y)
+
 * [230326-周斌：言语的智慧](https://www.asuswebstorage.com/navigate/a/#/s/FDEC9341FB8C412BB81D75A050B85BEEY)
 
 * [230319-雅歌第八章（三）](https://www.asuswebstorage.com/navigate/a/#/s/B14B8938171A4CEC8681B68424EA401FY)
