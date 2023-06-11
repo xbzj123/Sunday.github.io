@@ -1,4 +1,17 @@
 为达到观影效果，建议将网址复制到浏览器播放。
+
+* [230604-因信称义](https://www.asuswebstorage.com/navigate/a/#/s/6DB3FDB8D1994B72B24B1AC159A742CEY)
+
+* [230528-教会的使命](https://www.asuswebstorage.com/navigate/a/#/s/7D206A2992AA4D10AD172868566F964BY)
+
+* [230514-行公义与好怜悯](https://www.asuswebstorage.com/navigate/a/#/s/3ED3DC1B0D0C4DFDAA1D42EC8EC26D9FY)
+
+* [230507-神的圣洁](https://www.asuswebstorage.com/navigate/a/#/s/7FBFC719D9F44043AD48269491CD4C30Y)
+
+* [230430-委身的生命](https://www.asuswebstorage.com/navigate/a/#/s/46F4FE8E29414E97A7509B87EAAB5F2DY)
+
+* [230423-为什么上帝不应允我的祷告？](https://www.asuswebstorage.com/navigate/a/#/s/AE4F7ACCBB5041F683E67CC2696DC732Y)
+
 * [230416-两条生命的轨迹](https://www.asuswebstorage.com/navigate/a/#/s/1F815ABE4CD647B782B29EA3A95BE509Y)
 
 * [230402-神就是爱但爱不是神](https://www.asuswebstorage.com/navigate/a/#/s/FD56334EFF394C30BAF68833991F35B4Y)
