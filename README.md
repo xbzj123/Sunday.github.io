@@ -109,3 +109,5 @@
 * [220515-雅歌（第四章）](https://www.asuswebstorage.com/navigate/a/#/s/E55E4A71C43441E19994841A2D8A2796Y)
 
 * [220508-信靠的生命](https://www.asuswebstorage.com/navigate/a/#/s/803B7915C8214401961A930724D5545CY)
+
+* [220424-饶恕带来的祝福](https://www.asuswebstorage.com/navigate/a/#/s/040153E21CBF47D293D96125336EC8F6Y)
