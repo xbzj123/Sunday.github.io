@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [230618-何谓三观](https://www.asuswebstorage.com/navigate/a/#/s/2B0B79F384D446B68F371FBEFA08A8E7Y)
+
 * [230611-渴慕主的同在](https://www.asuswebstorage.com/navigate/a/#/s/F1DF2DA93E5D4B19B8B2F800F5F1051BY)
 
 * [230604-因信称义](https://www.asuswebstorage.com/navigate/a/#/s/6DB3FDB8D1994B72B24B1AC159A742CEY)
