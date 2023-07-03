@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [230702-我信故我在](https://www.asuswebstorage.com/navigate/a/#/s/9AC45CCE2A8C4B83AE9603D62740F65AY)
+
 * [230625-这是什么意思](https://www.asuswebstorage.com/navigate/a/#/s/5533407579D84A53A21A17195E00ACD3Y)
 
 * [230618-何谓三观](https://www.asuswebstorage.com/navigate/a/#/s/2B0B79F384D446B68F371FBEFA08A8E7Y)
