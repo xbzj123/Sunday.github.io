@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [230716-从圣经看爱情与婚姻的起源及其相互关系](https://www.asuswebstorage.com/navigate/a/#/s/177651AC85BA419F9CDF854CCB4B71EFY)
+
 * [230709-唯独恩典](https://www.asuswebstorage.com/navigate/a/#/s/EAC7C27F18A54CD4B4701E17FC2007C1Y)
 
 * [230702-我信故我在](https://www.asuswebstorage.com/navigate/a/#/s/9AC45CCE2A8C4B83AE9603D62740F65AY)
