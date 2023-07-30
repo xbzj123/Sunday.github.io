@@ -2,6 +2,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 -------------------------------------------------------------
 
+* [230730-爱的颂歌-所罗门王的智慧](https://www.asuswebstorage.com/navigate/a/#/s/C8A5E4A274AD477CADD805084B8BF0D5Y)
+
 * [230723-我们成为一家人](https://www.asuswebstorage.com/navigate/a/#/s/8F1EB1B447DB4B2DBDE3C355B8A29D35Y)
 
 * [230716-从圣经看爱情与婚姻的起源及其相互关系](https://www.asuswebstorage.com/navigate/a/#/s/177651AC85BA419F9CDF854CCB4B71EFY)
