@@ -2,6 +2,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 -------------------------------------------------------------
 
+* [230806-神的呼召](https://www.asuswebstorage.com/navigate/a/#/s/E8CAC2590A4145A8B2B817C8AE42319CY)
+
 * [230730-爱的颂歌-所罗门王的智慧](https://www.asuswebstorage.com/navigate/a/#/s/C8A5E4A274AD477CADD805084B8BF0D5Y)
 
 * [230723-我们成为一家人](https://www.asuswebstorage.com/navigate/a/#/s/8F1EB1B447DB4B2DBDE3C355B8A29D35Y)
