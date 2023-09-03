@@ -1,6 +1,10 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 -------------------------------------------------------------
+* [230903-真心真信VS伪善之恶](https://www.asuswebstorage.com/navigate/a/#/s/2A17F6CE2139432AB7E367B6BC3D46EAY)
+
+* [230827-基督里的自由](https://www.asuswebstorage.com/navigate/a/#/s/22F8BC2D8F8B4C3EA34313EAC802AFCBY)
+
 * [230820-我们起来事奉吧](https://www.asuswebstorage.com/navigate/a/#/s/828152F537204716AF08A6363CB6CEE4Y)
 
 * [230813-脚前的灯与路上的光](https://www.asuswebstorage.com/navigate/a/#/s/60983378CAA64D19AACFBDF67D60999FY)
