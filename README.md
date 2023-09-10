@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 -------------------------------------------------------------
+* [230910-先知的职分与活出圣洁](https://www.asuswebstorage.com/navigate/a/#/s/3262F0C8CCE4497EBD983F9043A6AFDAY)
+
 * [230903-真心真信VS伪善之恶](https://www.asuswebstorage.com/navigate/a/#/s/A567502DF80C4CF984BE2D6B464683F7Y)
 
 * [230827-基督里的自由](https://www.asuswebstorage.com/navigate/a/#/s/22F8BC2D8F8B4C3EA34313EAC802AFCBY)
