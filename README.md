@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 -------------------------------------------------------------
+* [230917-神造婚姻的属灵意义和社会意义](https://www.asuswebstorage.com/navigate/a/#/s/22296E260355440C871971320653C049Y)
+
 * [230910-先知的职分与敬虔的服事](https://www.asuswebstorage.com/navigate/a/#/s/3262F0C8CCE4497EBD983F9043A6AFDAY)
 
 * [230903-真心真信VS伪善之恶](https://www.asuswebstorage.com/navigate/a/#/s/A567502DF80C4CF984BE2D6B464683F7Y)
