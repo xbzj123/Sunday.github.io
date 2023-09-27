@@ -1,5 +1,4 @@
 为达到观影效果，建议将网址复制到浏览器播放。
-![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 ![日常](https://github.com/xbzj123/Sunday.github.io/assets/104498381/ca533755-2f80-4ff9-82b0-a95ea4941f52)
 
