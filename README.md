@@ -5,7 +5,7 @@
 -------------------------------------------------------------
 * [230924-拥抱天父的爱](https://www.asuswebstorage.com/navigate/a/#/s/357EC808F59E4B4684E87A704C958457Y)
 
-* [230917-神造婚姻的属灵意义和社会意义](https://www.asuswebstorage.com/navigate/a/#/s/22296E260355440C871971320653C049Y)——[张妙阳](https://www.asuswebstorage.com/navigate/a/#/s/9DAA53C9CE984A65A602D11412F9E455Y)
+* [230917-神造婚姻的属灵意义和社会意义](https://www.asuswebstorage.com/navigate/a/#/s/22296E260355440C871971320653C049Y)——[分享二：张妙阳](https://www.asuswebstorage.com/navigate/a/#/s/9DAA53C9CE984A65A602D11412F9E455Y)
 
 * [230910-先知的职分与敬虔的服事](https://www.asuswebstorage.com/navigate/a/#/s/3262F0C8CCE4497EBD983F9043A6AFDAY)
 
