@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+* [231001-何为善-公义与邦国](https://www.asuswebstorage.com/navigate/a/#/s/B45C6B501F0F41AC8CD7C4F29C2B460EY)
+------------------------------------------------------
 * [230924-拥抱天父的爱](https://www.asuswebstorage.com/navigate/a/#/s/357EC808F59E4B4684E87A704C958457Y)
 ------------------------------------------------------
 * [230917-神造婚姻的属灵意义和社会意义](https://www.asuswebstorage.com/navigate/a/#/s/22296E260355440C871971320653C049Y)
