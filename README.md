@@ -3,6 +3,10 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+* [231022-保罗的三次旅行宣教](https://www.asuswebstorage.com/navigate/a/#/s/76F85F4EC0A344038A35904D6E2B2515Y)
+-------------------------------------------------------------
+* [231015-當代社會對婚姻的三種典型態度](https://www.asuswebstorage.com/navigate/a/#/s/4892F5FCBB114D248B8902AFC8D973F8Y)
+-------------------------------------------------------------
 * [231008-认真对待公义](https://www.asuswebstorage.com/navigate/a/#/s/4D58C859F4AD45B1A2123C9394A1737BY)
 -------------------------------------------------------------
 * [231001-何为善-公义与邦国](https://www.asuswebstorage.com/navigate/a/#/s/B45C6B501F0F41AC8CD7C4F29C2B460EY)
