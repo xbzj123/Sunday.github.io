@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+* [231119-當代社會對婚姻的三種典型態度（下）盟约错了怎么办？](https://www.asuswebstorage.com/navigate/a/#/s/642876F6B6A949DFA8996DDF929E4C99Y)
+-------------------------------------------------------------
 * [231112-认识人性与救恩](https://www.asuswebstorage.com/navigate/a/#/s/E0B8F15CB96749C28933DAC86E6EE0B6Y)
 -------------------------------------------------------------
 * [231105-为你祝福的我必赐福与他](https://www.asuswebstorage.com/navigate/a/#/s/F150FD40A481439ABFA7A6F51A1B1459Y)
