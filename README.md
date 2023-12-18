@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+* [231217-婚姻缔结程序的属灵含义](https://www.asuswebstorage.com/navigate/a/#/s/0A1390A132D54FD4A29BE819BBC069E4Y)
+-------------------------------------------------------------
 * [231203-配得](https://www.asuswebstorage.com/navigate/a/#/s/923AF49D9B954AEA8A2314775F39BB43Y)
 -------------------------------------------------------------
 * [231126-财务蒙福之道](https://www.asuswebstorage.com/navigate/a/#/s/D63F9836EFAF4139AC397C175546171FY)
