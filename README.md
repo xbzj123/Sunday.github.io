@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+* [231231-神恩浩大](https://www.asuswebstorage.com/navigate/a/#/s/72DCCD6244EF4CE89F7C51B928A8A527Y)
+-------------------------------------------------------------
 * [231217-婚姻缔结程序的属灵含义](https://www.asuswebstorage.com/navigate/a/#/s/0A1390A132D54FD4A29BE819BBC069E4Y)
 -------------------------------------------------------------
 * [231210-末世预备与跟随救主](https://www.asuswebstorage.com/navigate/a/#/s/349E0D2E5DEE4334B9DA2F6E4B4CED24Y)
