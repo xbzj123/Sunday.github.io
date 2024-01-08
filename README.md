@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+* [240107-从岁首到年终 - 祝福2024 新的复兴新的你](https://www.asuswebstorage.com/navigate/a/#/s/0CC79B66DA1F42E1819C68ECBCAFE03DY)
+-------------------------------------------------------------
 * [231231-神恩浩大](https://www.asuswebstorage.com/navigate/a/#/s/72DCCD6244EF4CE89F7C51B928A8A527Y)
 -------------------------------------------------------------
 * [231217-婚姻缔结程序的属灵含义](https://www.asuswebstorage.com/navigate/a/#/s/0A1390A132D54FD4A29BE819BBC069E4Y)
