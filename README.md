@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+* [240114-神的羔羊-除去世人罪孽的](https://www.asuswebstorage.com/navigate/a/#/s/EDC3284B453A41229DC4B70329BA5F67Y)
+-------------------------------------------------------------
 * [240107-从岁首到年终 - 祝福2024 新的复兴新的你](https://www.asuswebstorage.com/navigate/a/#/s/0CC79B66DA1F42E1819C68ECBCAFE03DY)
 -------------------------------------------------------------
 * [231231-神恩浩大](https://www.asuswebstorage.com/navigate/a/#/s/72DCCD6244EF4CE89F7C51B928A8A527Y)
