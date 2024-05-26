@@ -3,6 +3,14 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [240519-做门徒的代价](https://www.asuswebstorage.com/navigate/a/#/s/8C20815F62E74BCEBD78AC4B391C44D4Y)
+-------------------------------------------------------------
+  * [240512-跨越阶层的爱与奴隶制的废除](https://www.asuswebstorage.com/navigate/a/#/s/4DA2EC2A36EB4426896A666B6296103AY)
+-------------------------------------------------------------
+  * [240505-大使命：深刻理解与践行](https://www.asuswebstorage.com/navigate/a/#/s/6E7C062533E94225B848E5883528D2EBY)
+-------------------------------------------------------------
+  * [240428-饶恕七十个七次](https://www.asuswebstorage.com/navigate/a/#/s/69D78AA4236E4733BD0487D6FA1CDFEFY)
+-------------------------------------------------------------
   * [240407-在基督里，你配得](https://www.asuswebstorage.com/navigate/a/#/s/F19C0EC9AE784470822EC6E7BA0ABFC5Y)
 -------------------------------------------------------------
   * [240324-平静风浪的主](https://www.asuswebstorage.com/navigate/a/#/s/98626761315645788E57C3B2473866E4Y)
