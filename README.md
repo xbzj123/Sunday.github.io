@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [240526-大使命：建造基督的门徒](https://www.asuswebstorage.com/navigate/a/#/s/9F522C8F42F04FECBE9119E0E38AADC1Y)
+-------------------------------------------------------------
   * [240519-做门徒的代价](https://www.asuswebstorage.com/navigate/a/#/s/8C20815F62E74BCEBD78AC4B391C44D4Y)
 -------------------------------------------------------------
   * [240512-跨越阶层的爱与奴隶制的废除](https://www.asuswebstorage.com/navigate/a/#/s/4DA2EC2A36EB4426896A666B6296103AY)
