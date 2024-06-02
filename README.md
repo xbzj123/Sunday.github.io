@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [240602—客西马尼园的耶稣](https://www.asuswebstorage.com/navigate/a/#/s/8C1E71BC1FD5494B81516C4FDAD2D09FY)
+-------------------------------------------------------------
   * [240526-大使命：建造基督的门徒](https://www.asuswebstorage.com/navigate/a/#/s/9F522C8F42F04FECBE9119E0E38AADC1Y)
 -------------------------------------------------------------
   * [240519-做门徒的代价](https://www.asuswebstorage.com/navigate/a/#/s/8C20815F62E74BCEBD78AC4B391C44D4Y)
