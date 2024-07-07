@@ -3,6 +3,12 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [240707基督与政治：天上地下所有的权柄](https://www.asuswebstorage.com/navigate/a/#/s/A696211471E54BEB8BABBE3AC30344A0Y)
+-------------------------------------------------------------
+  * [240630在世上你们有苦难](https://www.asuswebstorage.com/navigate/a/#/s/48BD7DDE72174D9EA2C573BCCC636517Y)
+-------------------------------------------------------------
+  * [240623你爱我比这些更深吗？](https://www.asuswebstorage.com/navigate/a/#/s/132E884EF56A40DD844EBDE7F4AD6256Y)
+-------------------------------------------------------------
   * [240616-因软弱变刚强](https://www.asuswebstorage.com/navigate/a/#/s/DEB443F3A64341F693695672A0D7C14FY)
 -------------------------------------------------------------
   * [240609-寻求上面的事](https://www.asuswebstorage.com/navigate/a/#/s/FC08FBC423614E08995F9701B0A28610Y)
