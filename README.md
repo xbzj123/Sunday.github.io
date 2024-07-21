@@ -3,7 +3,9 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
-  * [240707基督与政治：天上地下所有的权柄](https://www.asuswebstorage.com/navigate/a/#/s/A696211471E54BEB8BABBE3AC30344A0Y)
+  * [240721命定的呼召](https://www.asuswebstorage.com/navigate/a/#/s/BA119B4BDC864744A0A99FDCC1811C29Y)
+-------------------------------------------------------------
+  * [240714救主的呼召-拉撒路出来](https://www.asuswebstorage.com/navigate/a/#/s/A5E3F78345D341FA935597A6A0485130Y)
 -------------------------------------------------------------
   * [240630在世上你们有苦难](https://www.asuswebstorage.com/navigate/a/#/s/48BD7DDE72174D9EA2C573BCCC636517Y)
 -------------------------------------------------------------
