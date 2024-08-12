@@ -3,6 +3,10 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [240811天国近了！你们要悔改](https://www.asuswebstorage.com/navigate/a/#/s/EC1067C323E949F28843195D228E1A69Y)
+-------------------------------------------------------------
+  * [2400804我已经胜了世界](https://www.asuswebstorage.com/navigate/a/#/s/616A6C9CDAA145DD9E35DA5D1BDB96A7Y)
+-------------------------------------------------------------
   * [240721命定的呼召](https://www.asuswebstorage.com/navigate/a/#/s/BA119B4BDC864744A0A99FDCC1811C29Y)
 -------------------------------------------------------------
   * [240714救主的呼召-拉撒路出来](https://www.asuswebstorage.com/navigate/a/#/s/A5E3F78345D341FA935597A6A0485130Y)
