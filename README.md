@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [240818奴仆的轭](https://www.asuswebstorage.com/navigate/a/#/s/1B5F08EF717A4555A0964AA9DCBFF1EEY)
+-------------------------------------------------------------
   * [240811天国近了！你们要悔改](https://www.asuswebstorage.com/navigate/a/#/s/EC1067C323E949F28843195D228E1A69Y)
 -------------------------------------------------------------
   * [2400804我已经胜了世界](https://www.asuswebstorage.com/navigate/a/#/s/616A6C9CDAA145DD9E35DA5D1BDB96A7Y)
