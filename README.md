@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [241006更大、更全、更深：我们究竟信什么？](https://www.asuswebstorage.com/navigate/a/#/s/984AAD0E27D34A3998A941F43A4E0D40Y)
+-------------------------------------------------------------
   * [240929愿你的国降临](https://www.asuswebstorage.com/navigate/a/#/s/D6BAE2B445C14096900FFA58BA6FA580Y)
 -------------------------------------------------------------
   * [240922活出使命：立在破口之处](https://www.asuswebstorage.com/navigate/a/#/s/C6C16469607346C8A3F25DE5B5ED324CY)
