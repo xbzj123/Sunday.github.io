@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [241020神掌管历史](https://www.asuswebstorage.com/navigate/a/#/s/6A1DE2BF8BAF4E6180B6235AE23630A8Y)
+-------------------------------------------------------------
   * [241013基督文明--我们如何能不排外](https://www.asuswebstorage.com/navigate/a/#/s/DCCC157A6E6247C7B67899D02EE69BD0Y)
 -------------------------------------------------------------
   * [241006更大、更全、更深：我们究竟信什么？](https://www.asuswebstorage.com/navigate/a/#/s/984AAD0E27D34A3998A941F43A4E0D40Y)
