@@ -3,7 +3,7 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
-  * [241110雪薇:基督与文明——愿你的旨意成就](https://www.asuswebstorage.com/navigate/a/#/s/B113AE80CB3D489498F518E2902B7B53Y)
+  * [241110基督与文明——愿你的旨意成就](https://www.asuswebstorage.com/navigate/a/#/s/B113AE80CB3D489498F518E2902B7B53Y)
 -------------------------------------------------------------
   * [241103基督徒与政治](https://www.asuswebstorage.com/navigate/a/#/s/944C6B12A7CE44A78D00071152219263Y)
 -------------------------------------------------------------
