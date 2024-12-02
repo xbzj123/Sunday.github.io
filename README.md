@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [241201旷野悲歌与人的盼望](https://www.asuswebstorage.com/navigate/a/#/s/E202C80ACA89441E9B0F30EF1797B530Y)
+-------------------------------------------------------------
   * [241124从低潮中走出来的约瑟](https://www.asuswebstorage.com/navigate/a/#/s/E51D11B1574E4E0BB9EFE866D50CA3AFY)
 -------------------------------------------------------------
   * [241117筑山上之城](https://www.asuswebstorage.com/navigate/a/#/s/4597399C6E624A6181D73B9EADCB03DCY)
