@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [241208基督与文明：成为一个堵破口的人](https://www.asuswebstorage.com/navigate/a/#/s/9922EB861D614D8EB150942ECAA5C1C9Y)
+-------------------------------------------------------------
   * [241201旷野悲歌与人的盼望](https://www.asuswebstorage.com/navigate/a/#/s/E202C80ACA89441E9B0F30EF1797B530Y)
 -------------------------------------------------------------
   * [241124从低潮中走出来的约瑟](https://www.asuswebstorage.com/navigate/a/#/s/E51D11B1574E4E0BB9EFE866D50CA3AFY)
