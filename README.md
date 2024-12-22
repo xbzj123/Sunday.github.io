@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [241222黑暗中的盼望](https://www.asuswebstorage.com/navigate/a/#/s/FA6995AD443740C096446ECA79C31568Y)
+-------------------------------------------------------------
   * [241215伟大的复兴](https://www.asuswebstorage.com/navigate/a/#/s/D578D78809AA4C408C20D7F9C5714735Y)
 -------------------------------------------------------------
   * [241208基督与文明：成为一个堵破口的人](https://www.asuswebstorage.com/navigate/a/#/s/9922EB861D614D8EB150942ECAA5C1C9Y)
