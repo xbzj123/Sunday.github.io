@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [241228地上的绝望与天上的盼望](https://www.asuswebstorage.com/navigate/a/#/s/6A2606AB992047BCB829E4D96C788BE7Y)
+-------------------------------------------------------------
   * [241222黑暗中的盼望](https://www.asuswebstorage.com/navigate/a/#/s/FA6995AD443740C096446ECA79C31568Y)
 -------------------------------------------------------------
   * [241215伟大的复兴](https://www.asuswebstorage.com/navigate/a/#/s/D578D78809AA4C408C20D7F9C5714735Y)
