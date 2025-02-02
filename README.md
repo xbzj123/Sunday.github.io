@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [250202基督的痛与爱：恩典中的信心与盼望](https://www.asuswebstorage.com/navigate/a/#/s/989A76E0D0644954AA7C7B3FDEC0EC85Y)
+-------------------------------------------------------------
   * [250126一起走信心的路](https://www.asuswebstorage.com/navigate/a/#/s/7E676E76D41649D49D93939100BE33C4Y)
 -------------------------------------------------------------
   * [250119权力之笼与权利之荣](https://www.asuswebstorage.com/navigate/a/#/s/2EA9582E78C1493BBA5C89C4D0A07384Y)
