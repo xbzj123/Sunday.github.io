@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [250309天职的呼召：向着标杆直跑](https://www.asuswebstorage.com/navigate/a/#/s/60BC5D4F697A4B2AB8CFC5F643C8B539Y)
+-------------------------------------------------------------
   * [250302基督是我们的避难所](https://www.asuswebstorage.com/navigate/a/#/s/3F2DA8744AE64CC7B48F37FB13C1DB40Y)
 -------------------------------------------------------------
   * [250223更新与主的关系](https://www.asuswebstorage.com/navigate/a/#/s/16110ED5FF374E6F88047CD6D324D0E7Y)
