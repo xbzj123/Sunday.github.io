@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [250427亚伯拉罕的信心之旅](https://www.asuswebstorage.com/navigate/a/#/s/E7F3BF022F5D4D368C67242727576676Y)
+-------------------------------------------------------------
   * [250413王的标杆与陷阱](https://www.asuswebstorage.com/navigate/a/#/s/ADC0ED7D868242E6BC9CFDB16725C3E3Y)
 -------------------------------------------------------------
   * [250406非标基督徒：恩典竟是独一无二](https://www.asuswebstorage.com/navigate/a/#/s/1C6BEED8FE5B4145A44B7D3A47007F4CY)
