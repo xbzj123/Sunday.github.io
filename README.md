@@ -3,6 +3,8 @@
 ![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
+  * [250504智慧的王](https://www.asuswebstorage.com/navigate/a/#/s/3A3DD5EE06B14E4F837EFD67EC852BD6Y)
+-------------------------------------------------------------
   * [250427亚伯拉罕的信心之旅](https://www.asuswebstorage.com/navigate/a/#/s/E7F3BF022F5D4D368C67242727576676Y)
 -------------------------------------------------------------
   * [250413王的标杆与陷阱](https://www.asuswebstorage.com/navigate/a/#/s/ADC0ED7D868242E6BC9CFDB16725C3E3Y)
