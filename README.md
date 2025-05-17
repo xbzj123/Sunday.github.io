@@ -1,6 +1,5 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
-![Pull Requests Welcome](https://i.postimg.cc/nrQMWQMK/20230718093434.jpg)
 
 -------------------------------------------------------------
   * [250511凡劳苦担重担的到我面前来](https://www.asuswebstorage.com/navigate/a/#/s/6C02D448071C41D3A5B489E7A20E6AE7Y)
