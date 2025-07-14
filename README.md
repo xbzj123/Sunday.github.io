@@ -2,6 +2,8 @@
 
 
 -------------------------------------------------------------
+  * [250713胜过法利赛人的义](https://www.asuswebstorage.com/navigate/a/#/s/C72AFDB92CEA4DD29C318D310C007EBCY)
+-------------------------------------------------------------
   * [250706从“说是”到“成为是”——在光中行的生命](https://www.asuswebstorage.com/navigate/a/#/s/C43823C77C4D42BC89A5B1C7CA95AE39Y)
 -------------------------------------------------------------
   * [250629放下重担，奔赴使命](https://www.asuswebstorage.com/navigate/a/#/s/E6E328069A3A4EE18ADBAAC73D1EFEAEY)
