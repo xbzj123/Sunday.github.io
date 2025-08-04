@@ -4,6 +4,8 @@
 -------------------------------------------------------------
   * [250803穿越灵魂的“梦中梦”：撒旦的五重黑暗与福音的唤醒](https://www.asuswebstorage.com/navigate/a/#/s/8DD132A94B3A489E8F67C8055717DFB3Y)
 -------------------------------------------------------------
+  * [250727生命的更新与复兴](https://www.asuswebstorage.com/navigate/a/#/s/0D70CA6CD516430CBB66C6E4FE9AA90DY)
+-------------------------------------------------------------
   * [250720神的沉默](https://www.asuswebstorage.com/navigate/a/#/s/DE92E415BF7F4B31AD5C1D6743E22E1FY)
 -------------------------------------------------------------
   * [250713胜过法利赛人的义](https://www.asuswebstorage.com/navigate/a/#/s/C72AFDB92CEA4DD29C318D310C007EBCY)
