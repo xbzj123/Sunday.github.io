@@ -2,6 +2,8 @@
 
 
 -------------------------------------------------------------
+  * [251123搬走你生命中的木桩](https://www.asuswebstorage.com/navigate/a/#/s/120C7E17FD9C42C084FFDF95BCB7A2F3Y)
+-------------------------------------------------------------
   * [251116当神爱你所恨之人](https://www.asuswebstorage.com/navigate/a/#/s/C9A45BE78C0A44A9BA5D79042BBDBB88Y)
 -------------------------------------------------------------
   * [251109救赎的恩典---自由意志从捆绑到自由](https://www.asuswebstorage.com/navigate/a/#/s/DABD1EB0B7804CEA84C87569BB6860E5Y)
