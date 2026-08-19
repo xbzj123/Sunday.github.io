@@ -1,10 +1,15 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
-
+  
+ 
 -------------------------------------------------------------
-  * [260723乡下人的悲歌与天国子民的作为](https://www.asuswebstorage.com/navigate/a/#/s/519FE8E04F2F4F8A89D148F5696DC0DFY)
+  * [260723为什么我无法饶恕——愤怒背后的公义呼喊](https://www.asuswebstorage.com/navigate/a/#/s/3B1981495D8C43D2ACAA6928F8FA4639Y)
 -------------------------------------------------------------
-  * “山巅之城”与自由共和——美国建国250周年特别礼拜聚会暨1212论坛
+  * [260719我是葡萄树 你们是枝子，从现代足球看救赎与文明_](https://www.asuswebstorage.com/navigate/a/#/s/103EADF5572A4E249BE98BC7AB50487BY)
+-------------------------------------------------------------
+  * [260712乡下人的悲歌与天国子民的作为](https://www.asuswebstorage.com/navigate/a/#/s/519FE8E04F2F4F8A89D148F5696DC0DFY)
+-------------------------------------------------------------
+  *260705 “山巅之城”与自由共和——美国建国250周年特别礼拜聚会暨1212论坛
     * [王志勇：城造在山上，是不能隐藏的](https://www.asuswebstorage.com/navigate/a/#/s/565F9FBF5D1748619C894ED03F9D7F0DY)
     * [赵晓：自由、共和与天国国民：美国是镜子，天国才是答案](https://www.asuswebstorage.com/navigate/a/#/s/408D433CFAA04FE7B36B673A034570C2Y)
     * [刘军宁：上帝统治美国，十诫铸造自由](https://www.asuswebstorage.com/navigate/a/#/s/BA5186F206D04FA7A1E20ED120497A78Y)
