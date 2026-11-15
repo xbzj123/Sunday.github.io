@@ -1,42 +1,43 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
-
+-------------------------------------------------------------
+  * [261115_赵晓证道：那形体却是_基督——真影子让人播种，假影子让人焚烧](https://www.asuswebstorage.com/navigate/a/#/s/DD95CDD61A964630B5AA0FFFE710E1E4Y) 
 -------------------------------------------------------------
   * [261108-雪薇证道：以福音抵抗世界的风俗](https://www.asuswebstorage.com/navigate/a/#/s/CDAD037FA61046B387F5377ED2CB6E2EY) 
 -------------------------------------------------------------
-  * [261101_赵晓：信就是所望之事的实底——从耶利米乱世买地讲起](https://www.asuswebstorage.com/navigate/a/#/s/D9D0CF4BC5914DD3940F3CFA6E9E33F0Y) 
+  * [261101_赵晓证道：信就是所望之事的实底——从耶利米乱世买地讲起](https://www.asuswebstorage.com/navigate/a/#/s/D9D0CF4BC5914DD3940F3CFA6E9E33F0Y) 
 -------------------------------------------------------------
-  * [261025-周斌证道：培养敬虔的下一代](https://www.asuswebstorage.com/navigate/a/#/s/6B1AB94CD19B493E98FB820C883F2D0CY) 
+  * [261025-周斌牧师证道：培养敬虔的下一代](https://www.asuswebstorage.com/navigate/a/#/s/6B1AB94CD19B493E98FB820C883F2D0CY) 
 -------------------------------------------------------------
-  * [261018-赵晓：当同你所爱的妻快活度日](https://www.asuswebstorage.com/navigate/a/#/s/2A25C2EFB32841359523985455EDD376Y) 
+  * [261018-赵晓证道：当同你所爱的妻快活度日](https://www.asuswebstorage.com/navigate/a/#/s/2A25C2EFB32841359523985455EDD376Y) 
 -------------------------------------------------------------
-  * [261011-雪薇：生命起源于她——自有永有的创造主](https://www.asuswebstorage.com/navigate/a/#/s/0D39FC668CE54CC9941A1B6A09627AD8Y) 
+  * [261011-雪薇证道：生命起源于她——自有永有的创造主](https://www.asuswebstorage.com/navigate/a/#/s/0D39FC668CE54CC9941A1B6A09627AD8Y) 
 -------------------------------------------------------------
-  * [261004-赵晓：在亚当里还是在基督里？](https://www.asuswebstorage.com/navigate/a/#/s/2124B047581848B0865E70BB96BF4D7BY) 
+  * [261004-赵晓证道：在亚当里还是在基督里？](https://www.asuswebstorage.com/navigate/a/#/s/2124B047581848B0865E70BB96BF4D7BY) 
 -------------------------------------------------------------
-  * [260927-周斌：瞧这蒙福的家庭](https://www.asuswebstorage.com/navigate/a/#/s/13A5F17F660E44FA987781237F7FD41CY) 
+  * [260927-周斌证道：瞧这蒙福的家庭](https://www.asuswebstorage.com/navigate/a/#/s/13A5F17F660E44FA987781237F7FD41CY) 
 -------------------------------------------------------------
-  * [260920-赵晓：从法老到自由——国家、现实与心灵的三次出埃及](https://www.asuswebstorage.com/navigate/a/#/s/B7894D09E2B34DE9B5EC91F93626F45CY) 
+  * [260920-赵晓证道：从法老到自由——国家、现实与心灵的三次出埃及](https://www.asuswebstorage.com/navigate/a/#/s/B7894D09E2B34DE9B5EC91F93626F45CY) 
 -------------------------------------------------------------
-  * [260913-雪薇：成圣的道路：谁能救我脱离这取死的身体呢？](https://www.asuswebstorage.com/navigate/a/#/s/D5FD15514E3F4A20B3C270E2BDBACB4EY) 
+  * [260913-雪薇证道：成圣的道路：谁能救我脱离这取死的身体呢？](https://www.asuswebstorage.com/navigate/a/#/s/D5FD15514E3F4A20B3C270E2BDBACB4EY) 
 -------------------------------------------------------------
-  * [260906-赵晓：这天国的福音要传遍天下](https://www.asuswebstorage.com/navigate/a/#/s/172FD20495074A968E1EAEE713009FA2Y) 
+  * [260906-赵晓证道：这天国的福音要传遍天下](https://www.asuswebstorage.com/navigate/a/#/s/172FD20495074A968E1EAEE713009FA2Y) 
 -------------------------------------------------------------
-  * [260830-雪薇：十字架的道路——把自己交给主](https://www.asuswebstorage.com/navigate/a/#/s/3CFE2571E28B47708E11B65638175A10Y) 
+  * [260830-雪薇证道：十字架的道路——把自己交给主](https://www.asuswebstorage.com/navigate/a/#/s/3CFE2571E28B47708E11B65638175A10Y) 
 -------------------------------------------------------------
-  * [260823-周斌牧师：从哈该书看蒙福的法则](https://www.asuswebstorage.com/navigate/a/#/s/2CB26F8A5F2F4C258ABF64C6FFF4EFDAY) 
+  * [260823-周斌牧师证道：从哈该书看蒙福的法则](https://www.asuswebstorage.com/navigate/a/#/s/2CB26F8A5F2F4C258ABF64C6FFF4EFDAY) 
 -------------------------------------------------------------
   * [260816-赵晓：从我到我们——福音如何建立圣约共同体](https://www.asuswebstorage.com/navigate/a/#/s/0664227004D84253B0CB2688377C3D2DY) 
 -------------------------------------------------------------
-  * [260809约拿证道：从愤怒到饶恕，从委屈到安息](https://www.asuswebstorage.com/navigate/a/#/s/C6A94DE3DDC849019FC612CB622533A6Y) 
+  * [260809约拿牧师证道：从愤怒到饶恕，从委屈到安息](https://www.asuswebstorage.com/navigate/a/#/s/C6A94DE3DDC849019FC612CB622533A6Y) 
 -------------------------------------------------------------
-  * [260802赵晓：在你们的身子上荣耀神](https://www.asuswebstorage.com/navigate/a/#/s/D3CC95C441BE4ADF9DCA261AADF920E0Y) 
+  * [260802赵晓证道：在你们的身子上荣耀神](https://www.asuswebstorage.com/navigate/a/#/s/D3CC95C441BE4ADF9DCA261AADF920E0Y) 
 -------------------------------------------------------------
-  * [260723为什么我无法饶恕——愤怒背后的公义呼喊](https://www.asuswebstorage.com/navigate/a/#/s/3B1981495D8C43D2ACAA6928F8FA4639Y)
+  * [260723约拿牧师证道：为什么我无法饶恕——愤怒背后的公义呼喊](https://www.asuswebstorage.com/navigate/a/#/s/3B1981495D8C43D2ACAA6928F8FA4639Y)
 -------------------------------------------------------------
-  * [260719我是葡萄树 你们是枝子，从现代足球看救赎与文明_](https://www.asuswebstorage.com/navigate/a/#/s/103EADF5572A4E249BE98BC7AB50487BY)
+  * [260719赵晓证道：我是葡萄树 你们是枝子，从现代足球看救赎与文明_](https://www.asuswebstorage.com/navigate/a/#/s/103EADF5572A4E249BE98BC7AB50487BY)
 -------------------------------------------------------------
-  * [260712乡下人的悲歌与天国子民的作为](https://www.asuswebstorage.com/navigate/a/#/s/519FE8E04F2F4F8A89D148F5696DC0DFY)
+  * [260712雪薇证道“乡下人的悲歌与天国子民的作为](https://www.asuswebstorage.com/navigate/a/#/s/519FE8E04F2F4F8A89D148F5696DC0DFY)
 -------------------------------------------------------------
   * #260705“山巅之城”与自由共和——美国建国250周年特别礼拜聚会暨1212论坛
   
@@ -46,81 +47,81 @@
     * [蔡慎坤：从山巅之城到文明十字路口](https://www.asuswebstorage.com/navigate/a/#/s/10C5D3E3F858417CB61526943A1B9A8FY)
     * [总结分享](https://www.asuswebstorage.com/navigate/a/#/s/6F8BBDB80E6A4466A8CE06B37E518969Y)
 -------------------------------------------------------------
-  * [260628真实的活祭：撕下面具，活出新人的生命](https://www.asuswebstorage.com/navigate/a/#/s/DEFBED53842C4DA3A82AFCF92E4E6C59Y)
+  * [260628约拿牧师证道：真实的活祭：撕下面具，活出新人的生命](https://www.asuswebstorage.com/navigate/a/#/s/DEFBED53842C4DA3A82AFCF92E4E6C59Y)
 -------------------------------------------------------------
-  * [260621从远处望见，且欢喜迎接：神子民的信心与忠心](https://www.asuswebstorage.com/navigate/a/#/s/78A28586133C40DD9FC03844103493BAY)
+  * [260621赵晓证道：从远处望见，且欢喜迎接：神子民的信心与忠心](https://www.asuswebstorage.com/navigate/a/#/s/78A28586133C40DD9FC03844103493BAY)
 -------------------------------------------------------------
-  * [260614信仰的旅程——从天坛的“皇天上帝”到雅典的“未识之神”_](https://www.asuswebstorage.com/navigate/a/#/s/80754AD4B4044525996C78635165F073Y)
+  * [260614雪薇证道：信仰的旅程——从天坛的“皇天上帝”到雅典的“未识之神”_](https://www.asuswebstorage.com/navigate/a/#/s/80754AD4B4044525996C78635165F073Y)
 -------------------------------------------------------------
-  * [260607我终身的事在你手中——“最大的悲惨”与“至大的福分” 加尔文论神护理的福音](https://www.asuswebstorage.com/navigate/a/#/s/4AC100AAA72A44578C9D326A25749DBDY)
+  * [260607赵晓证道：我终身的事在你手中——“最大的悲惨”与“至大的福分” 加尔文论神护理的福音](https://www.asuswebstorage.com/navigate/a/#/s/4AC100AAA72A44578C9D326A25749DBDY)
 -------------------------------------------------------------
-  * [260531唯独神的恩典：识破交易式信仰，重构天国战场的恩典观](https://www.asuswebstorage.com/navigate/a/#/s/99955951D0BD4A4E9C35A155D69D4EA3Y)
+  * [260531约拿牧师证道：唯独神的恩典：识破交易式信仰，重构天国战场的恩典观](https://www.asuswebstorage.com/navigate/a/#/s/99955951D0BD4A4E9C35A155D69D4EA3Y)
 -------------------------------------------------------------
-  * [260524如何寻求上帝的引导](https://www.asuswebstorage.com/navigate/a/#/s/C93E5AAD051F46938332E2D05073CF9AY)
+  * [260524周斌牧师证道：如何寻求上帝的引导](https://www.asuswebstorage.com/navigate/a/#/s/C93E5AAD051F46938332E2D05073CF9AY)
 -------------------------------------------------------------
-  * [260517顺服的边界：基督徒何时必须说“不”](https://www.asuswebstorage.com/navigate/a/#/s/144E490CFF7544708A202241CB3B3FA3Y)
+  * [260517赵晓证道：顺服的边界：基督徒何时必须说“不”](https://www.asuswebstorage.com/navigate/a/#/s/144E490CFF7544708A202241CB3B3FA3Y)
 -------------------------------------------------------------
-  * [260510成圣之路上如何防范律法主义和反律主义陷阱](https://www.asuswebstorage.com/navigate/a/#/s/E78B3810DBA444A99F48EF5FF558772CY)
+  * [260510雪薇证道：成圣之路上如何防范律法主义和反律主义陷阱](https://www.asuswebstorage.com/navigate/a/#/s/E78B3810DBA444A99F48EF5FF558772CY)
 -------------------------------------------------------------
-  * [260503谁坐在宝座上？_自称基督徒为何也会走向暴力](https://www.asuswebstorage.com/navigate/a/#/s/7D11C1730085407BAC939BF2BB6F9A89Y)
+  * [260503赵晓证道：谁坐在宝座上？_自称基督徒为何也会走向暴力](https://www.asuswebstorage.com/navigate/a/#/s/7D11C1730085407BAC939BF2BB6F9A89Y)
 -------------------------------------------------------------
-  * [260426教会是神的家](https://www.asuswebstorage.com/navigate/a/#/s/C77F5F6279B9489793194DBF0EEFD8E3Y)
+  * [260426周斌牧师证道：教会是神的家](https://www.asuswebstorage.com/navigate/a/#/s/C77F5F6279B9489793194DBF0EEFD8E3Y)
 -------------------------------------------------------------
-  * [260419真正塑造世界的，不是权力，而是讲坛](https://www.asuswebstorage.com/navigate/a/#/s/A90E9C8D19744BE586EB76E37EDCA4EDY)
+  * [260419赵晓证道：真正塑造世界的，不是权力，而是讲坛](https://www.asuswebstorage.com/navigate/a/#/s/A90E9C8D19744BE586EB76E37EDCA4EDY)
 -------------------------------------------------------------
-  * [260412耶稣复活的历史与意义](https://www.asuswebstorage.com/navigate/a/#/s/8B701E72B6634AF5BF4497D12E4DA5A6Y)
+  * [260412雪薇证道：耶稣复活的历史与意义](https://www.asuswebstorage.com/navigate/a/#/s/8B701E72B6634AF5BF4497D12E4DA5A6Y)
 -------------------------------------------------------------
-  * [260405当坟墓被打开_一个新世界的诞生_复活如何改变个人_历史与文明](https://www.asuswebstorage.com/navigate/a/#/s/CFA38C66E3884FBAA5FF545954330DF2Y)
+  * [260405赵晓证道：当坟墓被打开_一个新世界的诞生_复活如何改变个人_历史与文明](https://www.asuswebstorage.com/navigate/a/#/s/CFA38C66E3884FBAA5FF545954330DF2Y)
 -------------------------------------------------------------
-  * [260329英雄：从江湖小义到天国大义的生命重构](https://www.asuswebstorage.com/navigate/a/#/s/56CD55F0FD78485981305F7FC2BEA016Y)
+  * [260329约拿牧师证道：英雄：从江湖小义到天国大义的生命重构](https://www.asuswebstorage.com/navigate/a/#/s/56CD55F0FD78485981305F7FC2BEA016Y)
 -------------------------------------------------------------
-  * [260322放下 跟随 得力](https://www.asuswebstorage.com/navigate/a/#/s/27C7BDF37CDD4D318AC2037CCB9DA1D8Y)
+  * [260322周斌牧师证道：放下 跟随 得力](https://www.asuswebstorage.com/navigate/a/#/s/27C7BDF37CDD4D318AC2037CCB9DA1D8Y)
 -------------------------------------------------------------
-  * [260315战争的世界_和平在哪里？从战争到十字架](https://www.asuswebstorage.com/navigate/a/#/s/68C1EFE5EB4245F882B7D4BA287ED1FAY)
+  * [260315赵晓证道：战争的世界_和平在哪里？从战争到十字架](https://www.asuswebstorage.com/navigate/a/#/s/68C1EFE5EB4245F882B7D4BA287ED1FAY)
 -------------------------------------------------------------
-  * [260308成为与世界有别的人](https://www.asuswebstorage.com/navigate/a/#/s/E5AB878CD5FF41EB956B41843B7479D2Y)
+  * [260308雪薇证道：成为与世界有别的人](https://www.asuswebstorage.com/navigate/a/#/s/E5AB878CD5FF41EB956B41843B7479D2Y)
 -------------------------------------------------------------
-  * [260301在神面前：没有无辜者](https://www.asuswebstorage.com/navigate/a/#/s/A5B2A894158542EEAD5965465C7786C0Y)
+  * [260301赵晓证道：在神面前：没有无辜者](https://www.asuswebstorage.com/navigate/a/#/s/A5B2A894158542EEAD5965465C7786C0Y)
 -------------------------------------------------------------
-  * [260222信心带来神迹](https://www.asuswebstorage.com/navigate/a/#/s/242607C7905C49CDBDD2C755AF41EA18Y)
+  * [260222周斌牧师证道：信心带来神迹](https://www.asuswebstorage.com/navigate/a/#/s/242607C7905C49CDBDD2C755AF41EA18Y)
 -------------------------------------------------------------
-  * [260215看见_击穿现实屏障_重构天国视野](https://www.asuswebstorage.com/navigate/a/#/s/1B44E00D364640198A2A1E899BF84E78Y)
+  * [260215约拿牧师证道：看见_击穿现实屏障_重构天国视野](https://www.asuswebstorage.com/navigate/a/#/s/1B44E00D364640198A2A1E899BF84E78Y)
 -------------------------------------------------------------
-  * [260208与神和好 与人和好](https://www.asuswebstorage.com/navigate/a/#/s/8DF1ACFBF0FF4DA18F8DF3CF2C157EBEY)
+  * [260208雪薇证道：与神和好 与人和好](https://www.asuswebstorage.com/navigate/a/#/s/8DF1ACFBF0FF4DA18F8DF3CF2C157EBEY)
 -------------------------------------------------------------
-  * [260201最后的咒诅书，还是沉默前爱的呼唤](https://www.asuswebstorage.com/navigate/a/#/s/EC486557C1194AAD8EB1DABBEEB7EBCFY)
+  * [260201赵晓证道：最后的咒诅书，还是沉默前爱的呼唤](https://www.asuswebstorage.com/navigate/a/#/s/EC486557C1194AAD8EB1DABBEEB7EBCFY)
 -------------------------------------------------------------
-  * [260125新年这条路上一起走](https://www.asuswebstorage.com/navigate/a/#/s/6548BC0B5DF64C279E8B05914AAE6C4AY)
+  * [260125周斌牧师证道：新年这条路上一起走](https://www.asuswebstorage.com/navigate/a/#/s/6548BC0B5DF64C279E8B05914AAE6C4AY)
 -------------------------------------------------------------
-  * [260118王道已崩_霸道难立_天命何在？_中国的撒迦利亚时刻与呼召](https://www.asuswebstorage.com/navigate/a/#/s/1B910C2FAA5B47569B37B10532008247Y)
+  * [260118赵晓证道：王道已崩_霸道难立_天命何在？_中国的撒迦利亚时刻与呼召](https://www.asuswebstorage.com/navigate/a/#/s/1B910C2FAA5B47569B37B10532008247Y)
 -------------------------------------------------------------
-  * [260111圣灵使死人重生](https://www.asuswebstorage.com/navigate/a/#/s/9F7CE4CA383C4A9887D04D129DFA1F84Y)
+  * [260111雪薇证道：圣灵使死人重生](https://www.asuswebstorage.com/navigate/a/#/s/9F7CE4CA383C4A9887D04D129DFA1F84Y)
 -------------------------------------------------------------
-  * [260104赵晓：有灵的活人](https://www.asuswebstorage.com/navigate/a/#/s/15495328E616483CA62E50FD68C73C58Y)
+  * [260104赵晓证道：有灵的活人](https://www.asuswebstorage.com/navigate/a/#/s/15495328E616483CA62E50FD68C73C58Y)
 -------------------------------------------------------------
-  * [251228三个唯独](https://www.asuswebstorage.com/navigate/a/#/s/0435BB13376F499CAA3C9C53BF38B307Y)
+  * [251228周斌牧师证道：三个唯独](https://www.asuswebstorage.com/navigate/a/#/s/0435BB13376F499CAA3C9C53BF38B307Y)
 -------------------------------------------------------------
-  * [251221历史的地图是神画](https://www.asuswebstorage.com/navigate/a/#/s/795EC56D7DC748B0BFCEAD9CD0AA968DY)
+  * [251221赵晓证道：历史的地图是神画](https://www.asuswebstorage.com/navigate/a/#/s/795EC56D7DC748B0BFCEAD9CD0AA968DY)
 -------------------------------------------------------------
-  * [251214真正的大使命](https://www.asuswebstorage.com/navigate/a/#/s/9C198F05412A463CAAC13CA975246B25Y)
+  * [251214王志勇牧师证道：真正的大使命](https://www.asuswebstorage.com/navigate/a/#/s/9C198F05412A463CAAC13CA975246B25Y)
 -------------------------------------------------------------
-  * [251207香港火灾与神的律法必要成全](https://www.asuswebstorage.com/navigate/a/#/s/D659D213F3CD401A8ECDFB790BDCC820Y)
+  * [251207雪薇证道：香港火灾与神的律法必要成全](https://www.asuswebstorage.com/navigate/a/#/s/D659D213F3CD401A8ECDFB790BDCC820Y)
 -------------------------------------------------------------
-  * [251130与神共舞：从撒旦的探戈到上帝的华尔兹](https://www.asuswebstorage.com/navigate/a/#/s/20FC8B437CB64B5C9F6E8F3F34B47599Y)
+  * [251130约拿牧师证道：与神共舞：从撒旦的探戈到上帝的华尔兹](https://www.asuswebstorage.com/navigate/a/#/s/20FC8B437CB64B5C9F6E8F3F34B47599Y)
 -------------------------------------------------------------
-  * [251123搬走你生命中的木桩](https://www.asuswebstorage.com/navigate/a/#/s/120C7E17FD9C42C084FFDF95BCB7A2F3Y)
+  * [251123周斌牧师证道：搬走你生命中的木桩](https://www.asuswebstorage.com/navigate/a/#/s/120C7E17FD9C42C084FFDF95BCB7A2F3Y)
 -------------------------------------------------------------
-  * [251116当神爱你所恨之人](https://www.asuswebstorage.com/navigate/a/#/s/C9A45BE78C0A44A9BA5D79042BBDBB88Y)
+  * [251116赵晓证道：当神爱你所恨之人](https://www.asuswebstorage.com/navigate/a/#/s/C9A45BE78C0A44A9BA5D79042BBDBB88Y)
 -------------------------------------------------------------
-  * [251109救赎的恩典---自由意志从捆绑到自由](https://www.asuswebstorage.com/navigate/a/#/s/DABD1EB0B7804CEA84C87569BB6860E5Y)
+  * [251109雪薇证道：救赎的恩典---自由意志从捆绑到自由](https://www.asuswebstorage.com/navigate/a/#/s/DABD1EB0B7804CEA84C87569BB6860E5Y)
 -------------------------------------------------------------
-  * [251102在敌人面前的宴席](https://www.asuswebstorage.com/navigate/a/#/s/CA760CA3C6C54308B48594364906E76EY)
+  * [251102映光证道：在敌人面前的宴席](https://www.asuswebstorage.com/navigate/a/#/s/CA760CA3C6C54308B48594364906E76EY)
 -------------------------------------------------------------
-  * [251025因真理得自由 因信仰得勇气](https://www.asuswebstorage.com/navigate/a/#/s/D63366D5CE43428085A705E1700A65B0Y)
+  * [251025约拿牧师证道：因真理得自由 因信仰得勇气](https://www.asuswebstorage.com/navigate/a/#/s/D63366D5CE43428085A705E1700A65B0Y)
 -------------------------------------------------------------
-  * [251019被撕裂的第二日：考验、成长与复兴](https://www.asuswebstorage.com/navigate/a/#/s/F155005E01C543469AAAC3E1B657E4FAY)
+  * [251019赵晓证道：被撕裂的第二日：考验、成长与复兴](https://www.asuswebstorage.com/navigate/a/#/s/F155005E01C543469AAAC3E1B657E4FAY)
 -------------------------------------------------------------
-  * [251012从黑暗中的海子看真道中的婚姻](https://www.asuswebstorage.com/navigate/a/#/s/4F1DBE49824640889C63AEBD55EC7734Y)
+  * [251012雪薇证道：从黑暗中的海子看真道中的婚姻](https://www.asuswebstorage.com/navigate/a/#/s/4F1DBE49824640889C63AEBD55EC7734Y)
 -------------------------------------------------------------
   * [251005这个世界究竟谁做王：我们该听谁的？](https://www.asuswebstorage.com/navigate/a/#/s/0D853BDC27FF491EA4B98ADB43E3EA52Y)
 -------------------------------------------------------------
@@ -130,21 +131,21 @@
 -------------------------------------------------------------
   * [250914从柯克之死看法律的不可或缺](https://www.asuswebstorage.com/navigate/a/#/s/B53DD88AB7CB441398A01F21859C6A94Y)
 -------------------------------------------------------------
-  * [250907不是等末日，而是等主来](https://www.asuswebstorage.com/navigate/a/#/s/BC3C1D5B05224233AE551E2CCD2690A3Y)
+  * [250907赵晓证道：不是等末日，而是等主来](https://www.asuswebstorage.com/navigate/a/#/s/BC3C1D5B05224233AE551E2CCD2690A3Y)
 -------------------------------------------------------------
-  * [250831世界观决定世界：起初与历史的真相](https://www.asuswebstorage.com/navigate/a/#/s/57C6B5E16DB14511AC98D9DCF8F2914DY)
+  * [250831赵晓证道：世界观决定世界：起初与历史的真相](https://www.asuswebstorage.com/navigate/a/#/s/57C6B5E16DB14511AC98D9DCF8F2914DY)
 -------------------------------------------------------------
-  * [250824全面认识圣灵的工作](https://www.asuswebstorage.com/navigate/a/#/s/9C4BFBF15C864962B6399D57A8FAAB47Y)
+  * [250824周斌牧师证道：全面认识圣灵的工作](https://www.asuswebstorage.com/navigate/a/#/s/9C4BFBF15C864962B6399D57A8FAAB47Y)
 -------------------------------------------------------------
-  * [250817罪与耻，爱与恨](https://www.asuswebstorage.com/navigate/a/#/s/C9FB36A9DE594700B6908AF14DBC3C67Y)
+  * [250817映光证道：罪与耻，爱与恨](https://www.asuswebstorage.com/navigate/a/#/s/C9FB36A9DE594700B6908AF14DBC3C67Y)
 -------------------------------------------------------------
-  * [250810250810赦罪之恩超越人的传统](https://www.asuswebstorage.com/navigate/a/#/s/DB7ED377F35C4499AFE44EDFF613B7D1Y)
+  * [250810雪薇证道：赦罪之恩超越人的传统](https://www.asuswebstorage.com/navigate/a/#/s/DB7ED377F35C4499AFE44EDFF613B7D1Y)
 -------------------------------------------------------------
-  * [250803穿越灵魂的“梦中梦”：撒旦的五重黑暗与福音的唤醒](https://www.asuswebstorage.com/navigate/a/#/s/8DD132A94B3A489E8F67C8055717DFB3Y)
+  * [250803赵晓证道：穿越灵魂的“梦中梦”：撒旦的五重黑暗与福音的唤醒](https://www.asuswebstorage.com/navigate/a/#/s/8DD132A94B3A489E8F67C8055717DFB3Y)
 -------------------------------------------------------------
-  * [250727生命的更新与复兴](https://www.asuswebstorage.com/navigate/a/#/s/0D70CA6CD516430CBB66C6E4FE9AA90DY)
+  * [250727周斌牧师证道：生命的更新与复兴](https://www.asuswebstorage.com/navigate/a/#/s/0D70CA6CD516430CBB66C6E4FE9AA90DY)
 -------------------------------------------------------------
-  * [250720神的沉默](https://www.asuswebstorage.com/navigate/a/#/s/DE92E415BF7F4B31AD5C1D6743E22E1FY)
+  * [250720映光证道：神的沉默](https://www.asuswebstorage.com/navigate/a/#/s/DE92E415BF7F4B31AD5C1D6743E22E1FY)
 -------------------------------------------------------------
   * [250713胜过法利赛人的义](https://www.asuswebstorage.com/navigate/a/#/s/C72AFDB92CEA4DD29C318D310C007EBCY)
 -------------------------------------------------------------
@@ -154,17 +155,17 @@
 -------------------------------------------------------------
   * [250622职场宣教](https://www.asuswebstorage.com/navigate/a/#/s/A0B1484805574B5A9CE007DC9BFFE74FY)
 -------------------------------------------------------------
-  * [250615胜过](https://www.asuswebstorage.com/navigate/a/#/s/F1C0B176B00043709676792A1EFA83FCY)
+  * [250615映光证道：胜过](https://www.asuswebstorage.com/navigate/a/#/s/F1C0B176B00043709676792A1EFA83FCY)
 -------------------------------------------------------------
   * [250608五旬节与圣灵](https://www.asuswebstorage.com/navigate/a/#/s/5ED4FCD7B48A4E7F8C91E82658ED20F3Y)
 -------------------------------------------------------------
-  * [250601“是，就说是；不是，就说不是”——信仰是灵魂的投票](https://www.asuswebstorage.com/navigate/a/#/s/77EFDCF1D7484013850686DF12AEE589Y)
+  * [250601赵晓证道：“是，就说是；不是，就说不是”——信仰是灵魂的投票](https://www.asuswebstorage.com/navigate/a/#/s/77EFDCF1D7484013850686DF12AEE589Y)
 -------------------------------------------------------------
-  * [250525人筹算-神预定](https://www.asuswebstorage.com/navigate/a/#/s/8831A6B16BC4493CA95E4D0A1E75EA32Y)
+  * [250525映光证道：人筹算-神预定](https://www.asuswebstorage.com/navigate/a/#/s/8831A6B16BC4493CA95E4D0A1E75EA32Y)
 -------------------------------------------------------------
-  * [250518进入安息](https://www.asuswebstorage.com/navigate/a/#/s/DFBA3CB3AFA84A94BAAD6959FB7CE8F4Y)
+  * [250518约拿牧师证道：进入安息](https://www.asuswebstorage.com/navigate/a/#/s/DFBA3CB3AFA84A94BAAD6959FB7CE8F4Y)
 -------------------------------------------------------------
-  * [250511凡劳苦担重担的到我面前来](https://www.asuswebstorage.com/navigate/a/#/s/6C02D448071C41D3A5B489E7A20E6AE7Y)
+  * [250511雪薇证道：凡劳苦担重担的到我面前来](https://www.asuswebstorage.com/navigate/a/#/s/6C02D448071C41D3A5B489E7A20E6AE7Y)
 -------------------------------------------------------------
   * [250504智慧的王](https://www.asuswebstorage.com/navigate/a/#/s/3A3DD5EE06B14E4F837EFD67EC852BD6Y)
 -------------------------------------------------------------
